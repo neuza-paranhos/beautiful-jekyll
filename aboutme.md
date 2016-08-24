@@ -15,7 +15,7 @@ This was before getting a life, moving to New York, and going to work as a journ
 
 Among many gigs, I -- back to the first person -- worked as copy chief of an Internet economy publication -- this was pre-9/11 -- and as managing editor and interim chief a securities industry weekly. Lots of fascinating stories on enterprise Linux on a massive scale. 
 
-> [What a long strange trip it's been](https://www.youtube.com/watch?v=pafY6sZt0FE)
+[What a long strange trip it's been](https://www.youtube.com/watch?v=pafY6sZt0FE)
 
 Colin is married to [Neuzas Paranhos](https://www.facebook.com/neuza.paranhos), a *paulistana* journalist, translator and soon to be novelist. 
 
